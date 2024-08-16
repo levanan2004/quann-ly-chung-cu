@@ -1,2 +1,3 @@
 # quann-ly-chung-cu
-link video: https://www.tiktok.com/@uocmasterflutter/video/7403572711135481105
+link video tiktok: https://www.tiktok.com/@hocmaithoinean/video/7403704201810857233
+link video youtube: https://www.youtube.com/watch?v=EcKqfVmbSpk&feature=youtu.be
